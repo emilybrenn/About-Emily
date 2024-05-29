@@ -10,7 +10,7 @@
 
 
 
-What I'm Up to Lately:
+--------------What I'm Up to Lately--------------
 
 🎩 Top of mind: The Arthur C. Clarke quote “Any sufficiently advanced technology is indistinguishable from magic” came up at a conference last week re: AI enhancements. I'm thinking alot about how we can be productive and harder / better / faster / stronger in our current workflows with AI…but that the true magic happens when we have intention and use these tools to deliver outcome-oriented transformation.
   
