@@ -6,7 +6,7 @@
 
 📫 How to reach me: emilybrenn@gmail.com
 
-🏆 2x Webby Award winner. Most Innovative CS Initiative shortlist. Women in CX Collaboration Award nominee. Conference Speaker.
+🏆 2x Webby Award winner. Most Innovative CS Initiative shortlist. Women in CX Collaboration Award nominee. Conference Speaker. 
 
 
 
